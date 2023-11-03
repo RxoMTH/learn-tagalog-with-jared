@@ -10,7 +10,7 @@ https://rxomth.github.io/learn-tagalog-with-jared/files/index.html
 
 # Who is Jared Hartmann?
 
-Jared Hartmann is a Canadian content creator of German descent who speaks four languages fluently, Tagalog included.
+Jared Hartmann is a Canadian content creator of German descent who speaks four languages fluently, Tagalog included.  
 Here are the links to Jared's socials:  
 [YouTube](https://www.youtube.com/@Jayyhartmann)  
 [Tiktok](https://www.tiktok.com/@language.jayy)  
